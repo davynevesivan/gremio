@@ -1,1 +1,1 @@
-# gremio
+O Grêmio Foot-Ball Porto Alegrense foi fundado em 15 de setembro de 1903, em um restaurante da região central de Porto Alegre. A equipe venceu o primeiro campeonato que disputou, a Taça Wanderpreiss, em 1905 - que voltaria a ganhar em outras sete oportunidades.O grêmio é uma organização sem fins lucrativos que representa o interesse dos estudantes e que tem fins cívicos, culturais, educacionais, desportivos e sociais. O grêmio é o órgão máximo de representação dos estudantes da escola.
